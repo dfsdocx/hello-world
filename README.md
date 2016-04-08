@@ -14,3 +14,8 @@ HAha,last night I remember that my 2nd-round test number is 404 "NOT FOUND!"...I
 NO 2nd war,as a joke in these years!
 
 PERFECT COLLEGE LIFE!
+
+======================================================================
+
+20160408:
+        a dozen! bullshit, I almost missed myself! try something different, go!
